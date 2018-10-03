@@ -7,12 +7,12 @@ La génoise :
 - 125g de farine
 - 1/2 sachet de levure chimique
 
-La caramel au beurre salé
+Le caramel au beurre salé
 - 160 g de sucre en poudre
 - 80 g de beurre demi-sel
 - 20 cl de crème liquide
 
-La chocolat Marzien:
+Le chocolat Marzien:
 - 200g de chocolat noir
 - Une bombe de colorant alimentaire rouge 
 
