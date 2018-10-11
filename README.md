@@ -16,8 +16,7 @@ Le chocolat Marzien:
 - 200g de chocolat noir
 - Une bombe de colorant alimentaire rouge 
 
-Le sablé:
-- 1 sachet de petit LU
+Crêpes dentelles bretonnes
 
 ![img_20180925_164133 1](https://user-images.githubusercontent.com/5922848/46413756-f1d64600-c721-11e8-9935-fe2836dc75b2.jpg)
 
